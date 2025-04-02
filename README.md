@@ -1,2 +1,2 @@
 # GitHub-Pages-project
-Joseph Eddy, A17791212
+Joseph Eddy's User Page
